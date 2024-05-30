@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://twitter.com/anand" target="blank"><img src="https://img.shields.io/twitter/follow/anand?logo=twitter&style=for-the-badge" alt="anand" /></a> </p>
 
-- 🔭 I’m currently working on **React Food app**
+- 🔭 I’m currently working on **React Netflix GPT**
 
 - 🌱 I’m currently learning **Node js Github Mongodb**
 
