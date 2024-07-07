@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **anandkr7808@gmail.com**
 
-- 📄 Know about my experiences [https://peach-deny-18.tiiny.site/](https://sapphire-chiquia-37.tiiny.site/)
+- 📄 Know about my experiences https://peach-deny-18.tiiny.site/
 
 - ⚡ Fun fact **I enjoy my own company**
 
