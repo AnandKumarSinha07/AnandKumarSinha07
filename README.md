@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **anandkr7808@gmail.com**
 
-- 📄 Know about my experiences https://tomato-berget-21.tiiny.site/
+- 📄 Know about my experiences https://black-corrina-55.tiiny.site/
 
 - ⚡ Fun fact **I enjoy my own company**
 
